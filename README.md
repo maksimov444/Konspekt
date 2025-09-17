@@ -1,2 +1,2 @@
 # Konspekt
-https://clck.ru/3PFeRT
+https://clck.ru/3PFeRT конспект excel
